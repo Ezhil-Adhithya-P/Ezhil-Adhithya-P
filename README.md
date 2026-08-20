@@ -1,5 +1,5 @@
 #  Interviewer: Tell me about yourself
-I don't sell Ice-creams. #iykyk <br>Driving Swift ❌ Working on SWIFT ✅<br>Research papers written. Awaiting for them to publish :( 
+I don't sell Ice-creams. #iykyk <br>Driving Swift ❌ Working on SWIFT ✅<br>Research papers written ;-)
 
 
 ##  HRs anytime for y'all
